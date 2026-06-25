@@ -131,10 +131,9 @@ Special thanks to:
 
 For inquiries or collaborations, kindly reach out via:
 
-**Email**: [your-email@example.com]  
-**LinkedIn**: [linkedin.com/in/your-profile]  
-**ResearchGate**: [researchgate.net/profile/your-profile]
-
+**Email**: mrwudil@gmail.com  
+**LinkedIn**: www.linkedin.com/in/abba-bello-muhammad-a39ba6283  
+**GoogleScholar**: https://scholar.google.com/citations?user=fzXG98oAAAAJ&hl=en
 ---
 
 
